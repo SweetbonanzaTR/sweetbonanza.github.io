@@ -10,7 +10,7 @@ Bonus özellikleri: Oyuncular, belirli sayıda özel sembolü toplayarak ekstra 
 
 Sweet Bonanza, görsel olarak çekici grafiklere, eğlenceli animasyonlara ve etkili bir müziğe sahiptir, bu da oyuncuların keyifli bir deneyim yaşamasını sağlar. Oyun, hem yeni başlayanlar hem de deneyimli oyuncular için uygun olup, farklı bahis seçenekleri sunarak geniş bir kitleye hitap eder.
 
-![photo_2025-01-04_12-08-10](https://github.com/user-attachments/assets/657d2db5-ffe9-426c-8989-938eb4cb82b9) SWEET BONANZA OYNA : https://cutt.ly/LedI5s0p
+![photo_2025-01-04_12-08-10](https://github.com/user-attachments/assets/657d2db5-ffe9-426c-8989-938eb4cb82b9) SWEET BONANZA OYNA  (https://cutt.ly/LedI5s0p)
 
 
 Oyun Kuralları ve Oynanış
